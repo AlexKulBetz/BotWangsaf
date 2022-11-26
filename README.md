@@ -3,7 +3,7 @@
 <h1 align="center">🔥 𝚆𝙴𝙻𝙲𝙾𝙼𝙴 🔥</h1>
 <br>
 <div align="center">
-<img src="https://www.linkpicture.com/q/20221122_092640_1.png">
+<img src="https://a.top4top.io/s_2521mvvv20.jpg">
 </div>
 <br>
 </p>
